@@ -1,0 +1,7 @@
+# IDE files
+.idea
+.vscode
+
+# Python temporary files
+__pycache__
+.mypy_cache
