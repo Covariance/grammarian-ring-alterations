@@ -1,0 +1,254 @@
+# Acquisitions Incorporated
+
+## distort value
+
+- distort evalue
+- distort valve
+- distort valse
+- distort valued
+- distort valure
+- distort lvalue
+- distort valuer
+- distort values
+- distort vale
+- distort vague
+- distort salue
+- bistort value
+- distorts value
+- disport value
+
+## fast friends
+
+- fast fiends
+- fast friend
+- bast friends
+- vast friends
+- fact friends
+- fest friends
+- fass friends
+- gast friends
+- last friends
+- faust friends
+- fas friends
+- fat friends
+- fant friends
+- fait friends
+- ast friends
+- cast friends
+- fust friends
+- wast friends
+- fasts friends
+- nast friends
+- hast friends
+- mast friends
+- fash friends
+- fart friends
+- feast friends
+- east friends
+- faut friends
+- oast friends
+- past friends
+- fasti friends
+- fist friends
+- fasc friends
+
+## gift of gab
+
+- gift of gaub
+- gift of bab
+- gift of gabi
+- gift of gam
+- gift of gau
+- gift of gad
+- gift of cab
+- gift of gag
+- gift of gaw
+- gift of gal
+- gift of kab
+- gift of nab
+- gift of gamb
+- gift of glb
+- gift of gabe
+- gift of gan
+- gift of fab
+- gift of gob
+- gift of dab
+- gift of garb
+- gift of mab
+- gift of gaj
+- gift of gap
+- gift of wab
+- gift of sab
+- gift of gay
+- gift of geb
+- gift of gae
+- gift of ga
+- gift of ab
+- gift of gaby
+- gift of jab
+- gift of gat
+- gift of rab
+- gift of hab
+- gift of gas
+- gift of gaz
+- gift of gib
+- gift of grab
+- gift of gabs
+- gift of gar
+- gift of tab
+- gift of lab
+- gift oe gab
+- gift om gab
+- gift ok gab
+- gift iof gab
+- gift cf gab
+- gift eof gab
+- gift o gab
+- gift rf gab
+- gift oh gab
+- gift oof gab
+- gift f gab
+- gift ef gab
+- gift sf gab
+- gift ol gab
+- gift oaf gab
+- gift hf gab
+- gift lof gab
+- gift ofo gab
+- gift ox gab
+- gift ow gab
+- gift ouf gab
+- gift od gab
+- gift mf gab
+- gift if gab
+- gift op gab
+- gift os gab
+- gift af gab
+- gift on gab
+- gift ff gab
+- gift orf gab
+- gift oy gab
+- gift ot gab
+- gift oz gab
+- gift ob gab
+- gift lf gab
+- gift or gab
+- gift off gab
+- gift wf gab
+- gift oft gab
+- gift oc gab
+- gift pf gab
+- gift bf gab
+- gift og gab
+- sift of gab
+- rift of gab
+- gilt of gab
+- git of gab
+- gifts of gab
+- gist of gab
+- lift of gab
+- girt of gab
+- gif of gab
+- tift of gab
+- grift of gab
+
+## incite greed
+
+- incite gweed
+- incite treed
+- incite gree
+- incite greedy
+- incite dreed
+- incite greet
+- incite breed
+- incite creed
+- incite agreed
+- incite geed
+- incite greeds
+- incite preed
+- incite grees
+- incite green
+- incite gleed
+- incite reed
+- incite freed
+- incite greyed
+- incite greek
+- zincite greed
+- incide greed
+- incited greed
+- uncite greed
+- incute greed
+- indite greed
+- insite greed
+- incites greed
+- inciter greed
+- incise greed
+- invite greed
+
+## jim's glowing coin
+
+- jim's glowing coir
+- jim's glowing crin
+- jim's glowing roin
+- jim's glowing coon
+- jim's glowing cosin
+- jim's glowing cain
+- jim's glowing join
+- jim's glowing con
+- jim's glowing colin
+- jim's glowing conn
+- jim's glowing corn
+- jim's glowing cocin
+- jim's glowing acoin
+- jim's glowing coix
+- jim's glowing coil
+- jim's glowing coign
+- jim's glowing conin
+- jim's glowing corin
+- jim's glowing hoin
+- jim's glowing coyn
+- jim's glowing coins
+- jim's glowing chin
+- jim's glowing foin
+- jim's glowing clin
+- jim's glowing covin
+- jim's glowing coan
+- jim's glowing loin
+- jim's glowing coif
+- jim's glowing coing
+- jim's glowing coiny
+- jim's glowing coit
+- jim's globing coin
+- jim's blowing coin
+- jim's flowing coin
+- jim's gloving coin
+- jim's glozing coin
+- jim's growing coin
+- jim's lowing coin
+- jim's slowing coin
+- jim's plowing coin
+
+## jim's magic missile
+
+- jim's magic missible
+- jim's magic misfile
+- jim's magic fissile
+- jim's magic emissile
+- jim's magic missiles
+- jim's magic missive
+- jim's mazic missile
+- jim's malic missile
+- jim's magi missile
+- jim's magics missile
+- jim's mafic missile
+- jim's manic missile
+
+## motivational speech
+
+- motivational seech
+- motivational speece
+- motivational sleech
+- motivational spetch
+- motivational smeech
+- motivational skeech
+

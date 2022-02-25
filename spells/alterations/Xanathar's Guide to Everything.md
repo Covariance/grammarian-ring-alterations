@@ -1,0 +1,3120 @@
+# Xanathar's Guide to Everything
+
+## abi-dalzim's horrid wilting
+
+- abi-dalzim's horrid jilting
+- abi-dalzim's horrid wiling
+- abi-dalzim's horrid hilting
+- abi-dalzim's horrid wilning
+- abi-dalzim's horrid witing
+- abi-dalzim's horrid willing
+- abi-dalzim's horrid lilting
+- abi-dalzim's horrid kilting
+- abi-dalzim's horrid wisting
+- abi-dalzim's horrid welting
+- abi-dalzim's horrid silting
+- abi-dalzim's horrid witting
+- abi-dalzim's horrid milting
+- abi-dalzim's horrid tilting
+- abi-dalzim's horrid wilding
+- abi-dalzim's harrid wilting
+- abi-dalzim's torrid wilting
+
+## absorb elements
+
+- absorb element
+- absorb clements
+- absorb elelments
+- adsorb elements
+- absorbs elements
+
+## aganazzar's scorcher
+
+- aganazzar's scorched
+- aganazzar's scorchers
+- aganazzar's scorches
+- aganazzar's scotcher
+
+## beast bond
+
+- beast bone
+- beast gond
+- beast bound
+- beast hond
+- beast fond
+- beast bong
+- beast boni
+- beast bod
+- beast lond
+- beast bind
+- beast bonds
+- beast boyd
+- beast bony
+- beast bend
+- beast boid
+- beast bood
+- beast bord
+- beast bon
+- beast pond
+- beast bona
+- beast sond
+- beast boud
+- beast blond
+- beast bons
+- beast band
+- beast cond
+- beast boned
+- beast bonk
+- beast bold
+- beast bono
+- beast yond
+- beast bund
+- beast rond
+- bast bond
+- boast bond
+- beat bond
+- breast bond
+- yeast bond
+- geast bond
+- brast bond
+- belast bond
+- beant bond
+- reast bond
+- beaut bond
+- best bond
+- beest bond
+- feast bond
+- east bond
+- least bond
+- blast bond
+- beasts bond
+
+## bones of the earth
+
+- bones of the farth
+- bones of the barth
+- bones of the warth
+- bones of the earths
+- bones of the garth
+- bones of the eath
+- bones of the hearth
+- bones of the dearth
+- bones of the yarth
+- bones of the yearth
+- bones of the erth
+- bones of the earsh
+- bones of the earthy
+- bones of them earth
+- bones of he earth
+- bones of tae earth
+- bones of toe earth
+- bones of th earth
+- bones of thew earth
+- bones of tie earth
+- bones of theb earth
+- bones of thae earth
+- bones of then earth
+- bones of thed earth
+- bones of she earth
+- bones of che earth
+- bones of tee earth
+- bones of tue earth
+- bones of tye earth
+- bones of tche earth
+- bones of tho earth
+- bones of they earth
+- bones of tha earth
+- bones of thea earth
+- bones of thy earth
+- bones of rhe earth
+- bones of te earth
+- bones of thee earth
+- bones of theo earth
+- bones oe the earth
+- bones om the earth
+- bones ok the earth
+- bones iof the earth
+- bones cf the earth
+- bones eof the earth
+- bones o the earth
+- bones rf the earth
+- bones oh the earth
+- bones oof the earth
+- bones f the earth
+- bones ef the earth
+- bones sf the earth
+- bones ol the earth
+- bones oaf the earth
+- bones hf the earth
+- bones lof the earth
+- bones ofo the earth
+- bones ox the earth
+- bones ow the earth
+- bones ouf the earth
+- bones od the earth
+- bones mf the earth
+- bones if the earth
+- bones op the earth
+- bones os the earth
+- bones af the earth
+- bones on the earth
+- bones ff the earth
+- bones orf the earth
+- bones oy the earth
+- bones ot the earth
+- bones oz the earth
+- bones ob the earth
+- bones lf the earth
+- bones or the earth
+- bones off the earth
+- bones wf the earth
+- bones oft the earth
+- bones oc the earth
+- bones pf the earth
+- bones bf the earth
+- bones og the earth
+- bone of the earth
+- pones of the earth
+- boney of the earth
+- bonks of the earth
+- bodes of the earth
+- boxes of the earth
+- bongs of the earth
+- zones of the earth
+- benes of the earth
+- hones of the earth
+- boners of the earth
+- bonnes of the earth
+- bonos of the earth
+- bonds of the earth
+- bonzes of the earth
+- bines of the earth
+- tones of the earth
+- nones of the earth
+- bons of the earth
+- jones of the earth
+- boner of the earth
+- boned of the earth
+- bonus of the earth
+- cones of the earth
+- sones of the earth
+- banes of the earth
+- bores of the earth
+- ones of the earth
+- boles of the earth
+
+## catapult
+
+- catapults
+
+## catnap
+
+- catnaps
+- catnip
+- catlap
+- catnep
+- canap
+
+## cause fear
+
+- cause dear
+- cause sear
+- cause afear
+- cause fears
+- cause lear
+- cause ferr
+- cause feak
+- cause hear
+- cause mear
+- cause ear
+- cause feal
+- cause year
+- cause flear
+- cause feuar
+- cause fiar
+- cause wear
+- cause feat
+- cause rear
+- cause feer
+- cause fer
+- cause far
+- cause tear
+- cause jear
+- cause gear
+- cause bear
+- cause near
+- cause pear
+- carse fear
+- chuse fear
+- causer fear
+- causa fear
+- camuse fear
+- causes fear
+- cruse fear
+- fause fear
+- casse fear
+- caus fear
+- causse fear
+- pause fear
+- cayuse fear
+- case fear
+- causae fear
+- causey fear
+- clause fear
+- hause fear
+- caused fear
+
+## ceremony
+
+
+## chaos bolt
+
+- chaos bott
+- chaos bot
+- chaos bol
+- chaos polt
+- chaos nolt
+- chaos bole
+- chaos bola
+- chaos boot
+- chaos holt
+- chaos bolty
+- chaos dolt
+- chaos bort
+- chaos belt
+- chaos boult
+- chaos jolt
+- chaos bout
+- chaos bolk
+- chaos bolti
+- chaos balt
+- chaos bolo
+- chaos volt
+- chaos bult
+- chaos boll
+- chaos boat
+- chaos molt
+- chaos bold
+- chaos tolt
+- chaos bolts
+- chaos colt
+- chars bolt
+- chao bolt
+- chads bolt
+- chaus bolt
+- chais bolt
+- chaps bolt
+- chamos bolt
+- chams bolt
+- chays bolt
+- chaws bolt
+- chats bolt
+- chass bolt
+
+## charm monster
+
+- charm moister
+- charm monstera
+- charm munster
+- charm conster
+- charm monsters
+- charm mobster
+- charm monaster
+- charm minster
+- chasm monster
+- chary monster
+- chirm monster
+- harm monster
+- chark monster
+- chars monster
+- pharm monster
+- charr monster
+- char monster
+- cham monster
+- tharm monster
+- chaum monster
+- charms monster
+- chara monster
+- churm monster
+- chamm monster
+- chare monster
+- chart monster
+- chard monster
+
+## control flames
+
+- control flamer
+- control flamen
+- control flamers
+- control flumes
+- control flares
+- control fames
+- control flamens
+- control blames
+- control flaxes
+- control flamed
+- control flame
+- control lames
+- control flanes
+- control flams
+- control flambes
+- control frames
+- control flakes
+- controls flames
+
+## control winds
+
+- control windy
+- control wends
+- control hinds
+- control windas
+- control rinds
+- control wynds
+- control windz
+- control wind
+- control winks
+- control wings
+- control finds
+- control kinds
+- control minds
+- control wins
+- control binds
+- control wines
+- control wilds
+- control wands
+- control winos
+- controls winds
+
+## create bonfire
+
+- create bonaire
+- create bonfires
+- crete bonfire
+- ocreate bonfire
+- creaze bonfire
+- creat bonfire
+- crease bonfire
+- crenate bonfire
+- cremate bonfire
+- creates bonfire
+- crate bonfire
+- created bonfire
+
+## create homunculus
+
+- crete homunculus
+- ocreate homunculus
+- creaze homunculus
+- creat homunculus
+- crease homunculus
+- crenate homunculus
+- cremate homunculus
+- creates homunculus
+- crate homunculus
+- created homunculus
+
+## crown of stars
+
+- crown of star
+- crown of sears
+- crown of stary
+- crown of starts
+- crown of starw
+- crown of stark
+- crown of starr
+- crown of stairs
+- crown of stare
+- crown of spars
+- crown of stays
+- crown of start
+- crown of stags
+- crown of stabs
+- crown of stats
+- crown of sitars
+- crown of soars
+- crown of tars
+- crown of starn
+- crown of stirs
+- crown of scars
+- crown of stares
+- crown oe stars
+- crown om stars
+- crown ok stars
+- crown iof stars
+- crown cf stars
+- crown eof stars
+- crown o stars
+- crown rf stars
+- crown oh stars
+- crown oof stars
+- crown f stars
+- crown ef stars
+- crown sf stars
+- crown ol stars
+- crown oaf stars
+- crown hf stars
+- crown lof stars
+- crown ofo stars
+- crown ox stars
+- crown ow stars
+- crown ouf stars
+- crown od stars
+- crown mf stars
+- crown if stars
+- crown op stars
+- crown os stars
+- crown af stars
+- crown on stars
+- crown ff stars
+- crown orf stars
+- crown oy stars
+- crown ot stars
+- crown oz stars
+- crown ob stars
+- crown lf stars
+- crown or stars
+- crown off stars
+- crown wf stars
+- crown oft stars
+- crown oc stars
+- crown pf stars
+- crown bf stars
+- crown og stars
+- crowd of stars
+- crow of stars
+- crows of stars
+- croon of stars
+- brown of stars
+- crowns of stars
+- clown of stars
+- frown of stars
+- drown of stars
+- crowl of stars
+- grown of stars
+
+## danse macabre
+
+- dense macabre
+- dance macabre
+- dansy macabre
+- dase macabre
+- manse macabre
+- dane macabre
+- panse macabre
+- danae macabre
+- dante macabre
+- dansk macabre
+- danke macabre
+- hanse macabre
+
+## dawn
+
+- tawn
+- awn
+- dawk
+- dawns
+- daw
+- damn
+- dan
+- down
+- daws
+- yawn
+- dain
+- bawn
+- adawn
+- fawn
+- pawn
+- dawt
+- jawn
+- drawn
+- dawe
+- dawen
+- sawn
+- dawny
+- mawn
+- darn
+- lawn
+- gawn
+- daun
+
+## dragon's breath
+
+- dragon's wreath
+- dragon's breadth
+- dragon's breach
+- dragon's freath
+- dragon's beath
+- dragon's breaths
+- dragon's breathy
+- dragon's breathe
+- dragon's breth
+- dragons breath
+
+## druid grove
+
+- druid grovy
+- druid rove
+- druid grope
+- druid grover
+- druid groved
+- druid grote
+- druid trove
+- druid groves
+- druid grovel
+- druid grovet
+- druid grave
+- druid glove
+- druid groove
+- druid gove
+- druid prove
+- druid drove
+- druids grove
+
+## dust devil
+
+- dust devils
+- dust deval
+- dust devily
+- dust evil
+- dust devi
+- dust decil
+- dust devel
+- dust bevil
+- dust kevil
+- dust deil
+- ust devil
+- oust devil
+- lust devil
+- fust devil
+- must devil
+- dush devil
+- duit devil
+- duct devil
+- dusty devil
+- dunst devil
+- duet devil
+- dost devil
+- dusts devil
+- durst devil
+- cust devil
+- dunt devil
+- adust devil
+- wust devil
+- gust devil
+- dult devil
+- dusk devil
+- rust devil
+- hust devil
+- bust devil
+- just devil
+- dist devil
+
+## earth tremor
+
+- earth tremors
+- earth trevor
+- earth cremor
+- farth tremor
+- barth tremor
+- warth tremor
+- earths tremor
+- garth tremor
+- eath tremor
+- hearth tremor
+- dearth tremor
+- yarth tremor
+- yearth tremor
+- erth tremor
+- earsh tremor
+- earthy tremor
+
+## earthbind
+
+
+## elemental bane
+
+- elemental baze
+- elemental bone
+- elemental lane
+- elemental banc
+- elemental cane
+- elemental bagne
+- elemental ban
+- elemental bate
+- elemental kane
+- elemental fane
+- elemental bale
+- elemental sane
+- elemental mane
+- elemental rane
+- elemental vane
+- elemental tane
+- elemental bank
+- elemental bange
+- elemental jane
+- elemental pane
+- elemental bine
+- elemental dane
+- elemental bade
+- elemental ane
+- elemental bare
+- elemental bani
+- elemental base
+- elemental band
+- elemental baned
+- elemental bande
+- elemental bant
+- elemental babe
+- elemental bans
+- elemental gane
+- elemental bene
+- elemental bae
+- elemental wane
+- elemental nane
+- elemental bake
+- elemental bang
+- elemental bana
+- elemental banes
+- elementals bane
+
+## enemies abound
+
+- enemies abounds
+- enemies bound
+- enemies rbound
+- enemies around
+- enemies ubound
+- enemied abound
+
+## enervation
+
+- denervation
+- nervation
+
+## erupting earth
+
+- erupting farth
+- erupting barth
+- erupting warth
+- erupting earths
+- erupting garth
+- erupting eath
+- erupting hearth
+- erupting dearth
+- erupting yarth
+- erupting yearth
+- erupting erth
+- erupting earsh
+- erupting earthy
+- eructing earth
+
+## far step
+
+- far skep
+- far seep
+- far stept
+- far stem
+- far stop
+- far strep
+- far sep
+- far sten
+- far swep
+- far stap
+- far stet
+- far ster
+- far stoep
+- far steg
+- far steep
+- far stey
+- far steps
+- far stew
+- var step
+- mar step
+- bar step
+- faro step
+- fag step
+- fas step
+- fat step
+- war step
+- fay step
+- ear step
+- farl step
+- farm step
+- sar step
+- dar step
+- fiar step
+- for step
+- fur step
+- fab step
+- fir step
+- jar step
+- fair step
+- fad step
+- fac step
+- fam step
+- fr step
+- fare step
+- fax step
+- oar step
+- lar step
+- par step
+- afar step
+- fa step
+- zar step
+- faq step
+- fart step
+- fer step
+- yar step
+- fear step
+- car step
+- ar step
+- fae step
+- tar step
+- fard step
+- gar step
+- fan step
+- nar step
+
+## find greater steed
+
+- find greater steen
+- find greater skeed
+- find greater steel
+- find greater steek
+- find greater steeds
+- find greater teed
+- find greater steid
+- find greater speed
+- find greater stead
+- find greater stied
+- find greater steep
+- find greater stewed
+- find greater steer
+- find greater styed
+- find greater seed
+- find greater steem
+- find greater stend
+- find grater steed
+- find greaser steed
+- find treater steed
+- find greaten steed
+- find greeter steed
+- kind greater steed
+- fins greater steed
+- ind greater steed
+- rind greater steed
+- fend greater steed
+- fond greater steed
+- pind greater steed
+- fid greater steed
+- hind greater steed
+- fini greater steed
+- fink greater steed
+- fined greater steed
+- findy greater steed
+- lind greater steed
+- fine greater steed
+- finn greater steed
+- tind greater steed
+- bind greater steed
+- fiend greater steed
+- sind greater steed
+- fino greater steed
+- fand greater steed
+- fund greater steed
+- wind greater steed
+- mind greater steed
+- fin greater steed
+- finds greater steed
+- fied greater steed
+
+## flame arrows
+
+- flame barrows
+- flame arrowy
+- flame marrows
+- flame arrow
+- flame yarrows
+- flame harrows
+- flame narrows
+- flame farrows
+- flamer arrows
+- aflame arrows
+- flam arrows
+- fleme arrows
+- clame arrows
+- flamen arrows
+- flamb arrows
+- flambe arrows
+- frame arrows
+- blame arrows
+- lame arrows
+- flamed arrows
+- flake arrows
+- flamy arrows
+- flams arrows
+- flames arrows
+- flume arrows
+- flane arrows
+- flare arrows
+- fname arrows
+- fame arrows
+
+## frostbite
+
+- frostbites
+- frostbit
+- frostbiter
+
+## guardian of nature
+
+- guardian of natured
+- guardian of natures
+- guardian of naturae
+- guardian of natura
+- guardian of naturel
+- guardian of mature
+- guardian oe nature
+- guardian om nature
+- guardian ok nature
+- guardian iof nature
+- guardian cf nature
+- guardian eof nature
+- guardian o nature
+- guardian rf nature
+- guardian oh nature
+- guardian oof nature
+- guardian f nature
+- guardian ef nature
+- guardian sf nature
+- guardian ol nature
+- guardian oaf nature
+- guardian hf nature
+- guardian lof nature
+- guardian ofo nature
+- guardian ox nature
+- guardian ow nature
+- guardian ouf nature
+- guardian od nature
+- guardian mf nature
+- guardian if nature
+- guardian op nature
+- guardian os nature
+- guardian af nature
+- guardian on nature
+- guardian ff nature
+- guardian orf nature
+- guardian oy nature
+- guardian ot nature
+- guardian oz nature
+- guardian ob nature
+- guardian lf nature
+- guardian or nature
+- guardian off nature
+- guardian wf nature
+- guardian oft nature
+- guardian oc nature
+- guardian pf nature
+- guardian bf nature
+- guardian og nature
+- guardians of nature
+
+## gust
+
+- ust
+- gurt
+- gast
+- dust
+- oust
+- lust
+- fust
+- must
+- gut
+- gist
+- gus
+- gush
+- guest
+- cust
+- gusto
+- gutt
+- gult
+- wust
+- agust
+- guss
+- gest
+- gusts
+- giust
+- rust
+- hust
+- bust
+- just
+- gusty
+
+## healing spirit
+
+- healing spirits
+- healing spirt
+- healing spirity
+- healing sprit
+- dealing spirit
+- sealing spirit
+- heading spirit
+- headling spirit
+- yealing spirit
+- shealing spirit
+- heaving spirit
+- whealing spirit
+- heling spirit
+- haling spirit
+- herling spirit
+- mealing spirit
+- bealing spirit
+- heating spirit
+- pealing spirit
+- vealing spirit
+- hearing spirit
+- heaping spirit
+- helling spirit
+- heeling spirit
+- heiling spirit
+
+## holy weapon
+
+- holy weason
+- holy weapons
+- coly weapon
+- hol weapon
+- holi weapon
+- moly weapon
+- hola weapon
+- holp weapon
+- huly weapon
+- holt weapon
+- poly weapon
+- hory weapon
+- hotly weapon
+- hole weapon
+- hoey weapon
+- holk weapon
+- holey weapon
+- homy weapon
+- hold weapon
+- holm weapon
+- holw weapon
+- hols weapon
+- holly weapon
+- hoy weapon
+- holl weapon
+- hooly weapon
+
+## ice knife
+
+- ice knive
+- ice knifes
+- ice knifed
+- ice knifer
+- ice nife
+- rice knife
+- ic knife
+- sice knife
+- ire knife
+- ices knife
+- dice knife
+- ise knife
+- ace knife
+- ile knife
+- iced knife
+- nice knife
+- wice knife
+- pice knife
+- ive knife
+- ike knife
+- ich knife
+- ce knife
+- lice knife
+- tice knife
+- ide knife
+- ie knife
+- icy knife
+- fice knife
+- mice knife
+- vice knife
+- ife knife
+- bice knife
+
+## illusory dragon
+
+- illusory dagon
+- illusory drago
+- illusory dragons
+- illusory dragoon
+- illusor dragon
+- allusory dragon
+
+## immolation
+
+- immolations
+
+## infernal calling
+
+- infernal walling
+- infernal calking
+- infernal falling
+- infernal palling
+- infernal catling
+- infernal culling
+- infernal colling
+- infernal carling
+- infernal calving
+- infernal balling
+- infernal cabling
+- infernal malling
+- infernal callings
+- infernal celling
+- infernal calfling
+- infernal galling
+- infernal calming
+- infernal halling
+- infernal capling
+- infernal lalling
+- inferial calling
+- internal calling
+
+## infestation
+
+- intestation
+- infestations
+
+## investiture of flame
+
+- investiture of flamer
+- investiture of aflame
+- investiture of flam
+- investiture of fleme
+- investiture of clame
+- investiture of flamen
+- investiture of flamb
+- investiture of flambe
+- investiture of frame
+- investiture of blame
+- investiture of lame
+- investiture of flamed
+- investiture of flake
+- investiture of flamy
+- investiture of flams
+- investiture of flames
+- investiture of flume
+- investiture of flane
+- investiture of flare
+- investiture of fname
+- investiture of fame
+- investiture oe flame
+- investiture om flame
+- investiture ok flame
+- investiture iof flame
+- investiture cf flame
+- investiture eof flame
+- investiture o flame
+- investiture rf flame
+- investiture oh flame
+- investiture oof flame
+- investiture f flame
+- investiture ef flame
+- investiture sf flame
+- investiture ol flame
+- investiture oaf flame
+- investiture hf flame
+- investiture lof flame
+- investiture ofo flame
+- investiture ox flame
+- investiture ow flame
+- investiture ouf flame
+- investiture od flame
+- investiture mf flame
+- investiture if flame
+- investiture op flame
+- investiture os flame
+- investiture af flame
+- investiture on flame
+- investiture ff flame
+- investiture orf flame
+- investiture oy flame
+- investiture ot flame
+- investiture oz flame
+- investiture ob flame
+- investiture lf flame
+- investiture or flame
+- investiture off flame
+- investiture wf flame
+- investiture oft flame
+- investiture oc flame
+- investiture pf flame
+- investiture bf flame
+- investiture og flame
+- investitures of flame
+
+## investiture of ice
+
+- investiture of rice
+- investiture of ic
+- investiture of sice
+- investiture of ire
+- investiture of ices
+- investiture of dice
+- investiture of ise
+- investiture of ace
+- investiture of ile
+- investiture of iced
+- investiture of nice
+- investiture of wice
+- investiture of pice
+- investiture of ive
+- investiture of ike
+- investiture of ich
+- investiture of ce
+- investiture of lice
+- investiture of tice
+- investiture of ide
+- investiture of ie
+- investiture of icy
+- investiture of fice
+- investiture of mice
+- investiture of vice
+- investiture of ife
+- investiture of bice
+- investiture oe ice
+- investiture om ice
+- investiture ok ice
+- investiture iof ice
+- investiture cf ice
+- investiture eof ice
+- investiture o ice
+- investiture rf ice
+- investiture oh ice
+- investiture oof ice
+- investiture f ice
+- investiture ef ice
+- investiture sf ice
+- investiture ol ice
+- investiture oaf ice
+- investiture hf ice
+- investiture lof ice
+- investiture ofo ice
+- investiture ox ice
+- investiture ow ice
+- investiture ouf ice
+- investiture od ice
+- investiture mf ice
+- investiture if ice
+- investiture op ice
+- investiture os ice
+- investiture af ice
+- investiture on ice
+- investiture ff ice
+- investiture orf ice
+- investiture oy ice
+- investiture ot ice
+- investiture oz ice
+- investiture ob ice
+- investiture lf ice
+- investiture or ice
+- investiture off ice
+- investiture wf ice
+- investiture oft ice
+- investiture oc ice
+- investiture pf ice
+- investiture bf ice
+- investiture og ice
+- investitures of ice
+
+## investiture of stone
+
+- investiture of stonk
+- investiture of tone
+- investiture of slone
+- investiture of stonen
+- investiture of atone
+- investiture of stoney
+- investiture of stond
+- investiture of stoke
+- investiture of sone
+- investiture of stones
+- investiture of stoned
+- investiture of store
+- investiture of stine
+- investiture of stane
+- investiture of shone
+- investiture of stove
+- investiture of stope
+- investiture of stole
+- investiture of stong
+- investiture of strone
+- investiture of stoae
+- investiture of stony
+- investiture of scone
+- investiture of astone
+- investiture of stoner
+- investiture oe stone
+- investiture om stone
+- investiture ok stone
+- investiture iof stone
+- investiture cf stone
+- investiture eof stone
+- investiture o stone
+- investiture rf stone
+- investiture oh stone
+- investiture oof stone
+- investiture f stone
+- investiture ef stone
+- investiture sf stone
+- investiture ol stone
+- investiture oaf stone
+- investiture hf stone
+- investiture lof stone
+- investiture ofo stone
+- investiture ox stone
+- investiture ow stone
+- investiture ouf stone
+- investiture od stone
+- investiture mf stone
+- investiture if stone
+- investiture op stone
+- investiture os stone
+- investiture af stone
+- investiture on stone
+- investiture ff stone
+- investiture orf stone
+- investiture oy stone
+- investiture ot stone
+- investiture oz stone
+- investiture ob stone
+- investiture lf stone
+- investiture or stone
+- investiture off stone
+- investiture wf stone
+- investiture oft stone
+- investiture oc stone
+- investiture pf stone
+- investiture bf stone
+- investiture og stone
+- investitures of stone
+
+## investiture of wind
+
+- investiture of kind
+- investiture of windy
+- investiture of wine
+- investiture of winds
+- investiture of ind
+- investiture of rind
+- investiture of wird
+- investiture of pind
+- investiture of hind
+- investiture of wand
+- investiture of lind
+- investiture of tind
+- investiture of bind
+- investiture of wynd
+- investiture of sind
+- investiture of wined
+- investiture of wied
+- investiture of win
+- investiture of windz
+- investiture of wino
+- investiture of wink
+- investiture of mind
+- investiture of wend
+- investiture of winy
+- investiture of wild
+- investiture of find
+- investiture of wid
+- investiture of wing
+- investiture of wins
+- investiture of wint
+- investiture oe wind
+- investiture om wind
+- investiture ok wind
+- investiture iof wind
+- investiture cf wind
+- investiture eof wind
+- investiture o wind
+- investiture rf wind
+- investiture oh wind
+- investiture oof wind
+- investiture f wind
+- investiture ef wind
+- investiture sf wind
+- investiture ol wind
+- investiture oaf wind
+- investiture hf wind
+- investiture lof wind
+- investiture ofo wind
+- investiture ox wind
+- investiture ow wind
+- investiture ouf wind
+- investiture od wind
+- investiture mf wind
+- investiture if wind
+- investiture op wind
+- investiture os wind
+- investiture af wind
+- investiture on wind
+- investiture ff wind
+- investiture orf wind
+- investiture oy wind
+- investiture ot wind
+- investiture oz wind
+- investiture ob wind
+- investiture lf wind
+- investiture or wind
+- investiture off wind
+- investiture wf wind
+- investiture oft wind
+- investiture oc wind
+- investiture pf wind
+- investiture bf wind
+- investiture og wind
+- investitures of wind
+
+## invulnerability
+
+
+## life transference
+
+- lifo transference
+- line transference
+- like transference
+- wife transference
+- lige transference
+- lif transference
+- rife transference
+- lifey transference
+- lifer transference
+- lie transference
+- lire transference
+- alife transference
+- lide transference
+- fife transference
+- lift transference
+- lifen transference
+- lice transference
+- lile transference
+- lime transference
+- sife transference
+- lite transference
+- lise transference
+- ife transference
+- nife transference
+- live transference
+
+## maddening darkness
+
+- maddening dankness
+- saddening darkness
+
+## maelstrom
+
+- maelstroms
+
+## magic stone
+
+- magic stonk
+- magic tone
+- magic slone
+- magic stonen
+- magic atone
+- magic stoney
+- magic stond
+- magic stoke
+- magic sone
+- magic stones
+- magic stoned
+- magic store
+- magic stine
+- magic stane
+- magic shone
+- magic stove
+- magic stope
+- magic stole
+- magic stong
+- magic strone
+- magic stoae
+- magic stony
+- magic scone
+- magic astone
+- magic stoner
+- mazic stone
+- malic stone
+- magi stone
+- magics stone
+- mafic stone
+- manic stone
+
+## mass polymorph
+
+- mass polymorpha
+- mass polymorphy
+- masc polymorph
+- macs polymorph
+- muss polymorph
+- fass polymorph
+- masse polymorph
+- masts polymorph
+- mays polymorph
+- tass polymorph
+- pass polymorph
+- maws polymorph
+- masu polymorph
+- masa polymorph
+- cass polymorph
+- ass polymorph
+- jass polymorph
+- mags polymorph
+- moss polymorph
+- miss polymorph
+- mask polymorph
+- masks polymorph
+- mast polymorph
+- mss polymorph
+- maes polymorph
+- maps polymorph
+- sass polymorph
+- mars polymorph
+- massa polymorph
+- mads polymorph
+- mess polymorph
+- mans polymorph
+- massy polymorph
+- lass polymorph
+- amass polymorph
+- bass polymorph
+- mas polymorph
+- mats polymorph
+- mash polymorph
+
+## maximilian's earthen grasp
+
+- maximilian's earthen grasps
+- maximilian's earthen graip
+- maximilian's earthen grass
+- maximilian's earthen gasp
+- maximilian's earthen gras
+- maximilian's earthen rasp
+- maximilian's earthen gramp
+- maximilian's earthmen grasp
+- maximilian's erthen grasp
+- maximilian's yarthen grasp
+- maximilian's earthed grasp
+
+## melf's minute meteors
+
+- melf's minute meteoris
+- melf's minute meters
+- melf's minute meteor
+- melf's minuted meteors
+- melf's minutes meteors
+- melf's minuter meteors
+
+## mental prison
+
+- mental poison
+- mental prion
+- mental parison
+- mental orison
+- mental grison
+- mental frison
+- mental prisons
+- menta prison
+- meatal prison
+- menial prison
+- amental prison
+- omental prison
+- ental prison
+- mantal prison
+- mensal prison
+- dental prison
+- metal prison
+- cental prison
+- rental prison
+
+## mighty fortress
+
+- mighty portress
+- mighty fostress
+- mighty mortress
+- lighty fortress
+- righty fortress
+- eighty fortress
+- sighty fortress
+- nighty fortress
+- might fortress
+- mightly fortress
+- mights fortress
+
+## mind spike
+
+- mind spiked
+- mind spine
+- mind spite
+- mind spake
+- mind spiker
+- mind spile
+- mind spuke
+- mind spise
+- mind spiks
+- mind spiky
+- mind pike
+- mind spikes
+- mind sike
+- mind spoke
+- mind spire
+- mind spice
+- mind spik
+- kind spike
+- mink spike
+- minx spike
+- mins spike
+- ind spike
+- rind spike
+- mid spike
+- mend spike
+- pind spike
+- mild spike
+- hind spike
+- lind spike
+- tind spike
+- bind spike
+- sind spike
+- mina spike
+- mint spike
+- miny spike
+- wind spike
+- mird spike
+- mined spike
+- mand spike
+- find spike
+- mine spike
+- mino spike
+- minds spike
+- min spike
+- mini spike
+- ming spike
+- mund spike
+
+## mold earth
+
+- mold farth
+- mold barth
+- mold warth
+- mold earths
+- mold garth
+- mold eath
+- mold hearth
+- mold dearth
+- mold yarth
+- mold yearth
+- mold erth
+- mold earsh
+- mold earthy
+- told earth
+- old earth
+- mola earth
+- gold earth
+- nold earth
+- moly earth
+- mild earth
+- sold earth
+- fold earth
+- mole earth
+- mood earth
+- moud earth
+- mord earth
+- cold earth
+- hold earth
+- mols earth
+- mod earth
+- moid earth
+- meld earth
+- molt earth
+- wold earth
+- bold earth
+- mould earth
+- moed earth
+- moldy earth
+- molds earth
+- moll earth
+- mol earth
+
+## negative energy flood
+
+- negative energy floody
+- negative energy blood
+- negative energy floyd
+- negative energy fload
+- negative energy glood
+- negative energy floor
+- negative energy flook
+- negative energy floods
+- negative energy lood
+- negative energy food
+- negative anergy flood
+- legative energy flood
+- negatived energy flood
+- negatives energy flood
+- negativer energy flood
+
+## power word pain
+
+- power word nain
+- power word rain
+- power word fain
+- power word vain
+- power word pan
+- power word bain
+- power word main
+- power word plain
+- power word hain
+- power word jain
+- power word cain
+- power word paine
+- power word pair
+- power word pavin
+- power word paid
+- power word prin
+- power word pais
+- power word dain
+- power word paik
+- power word lain
+- power word pin
+- power word pawn
+- power word gain
+- power word zain
+- power word ain
+- power word paip
+- power word pains
+- power word kain
+- power word pyin
+- power word spain
+- power word patin
+- power word sain
+- power word wain
+- power word paon
+- power word pein
+- power word paint
+- power word pail
+- power word tain
+- power ord pain
+- power worm pain
+- power wod pain
+- power sord pain
+- power wird pain
+- power wort pain
+- power work pain
+- power wood pain
+- power lord pain
+- power mord pain
+- power cord pain
+- power bord pain
+- power oord pain
+- power ford pain
+- power sword pain
+- power woad pain
+- power wold pain
+- power worn pain
+- power wore pain
+- power wordy pain
+- power world pain
+- power ward pain
+- power words pain
+- porer word pain
+- pawer word pain
+- plower word pain
+- dower word pain
+- poler word pain
+- poter word pain
+- ower word pain
+- prower word pain
+- poker word pain
+- jower word pain
+- powter word pain
+- cower word pain
+- tower word pain
+- poser word pain
+- lower word pain
+- rower word pain
+- vower word pain
+- sower word pain
+- bower word pain
+- powers word pain
+- mower word pain
+- powder word pain
+
+## primal savagery
+
+- primal scavagery
+- primal savagers
+- primal savagely
+- primal savager
+- primar savagery
+- prima savagery
+- prisal savagery
+- prismal savagery
+- primas savagery
+- rimal savagery
+
+## primordial ward
+
+- primordial gard
+- primordial word
+- primordial wary
+- primordial wird
+- primordial wart
+- primordial wars
+- primordial war
+- primordial warl
+- primordial wand
+- primordial award
+- primordial warb
+- primordial wards
+- primordial waird
+- primordial sward
+- primordial wad
+- primordial hard
+- primordial wark
+- primordial lard
+- primordial bard
+- primordial card
+- primordial dard
+- primordial warm
+- primordial sard
+- primordial pard
+- primordial warf
+- primordial nard
+- primordial wafd
+- primordial wared
+- primordial fard
+- primordial warn
+- primordial ware
+- primordial yard
+- primordial warp
+- primordia ward
+
+## psychic scream
+
+- psychic screar
+- psychic acream
+- psychic screamy
+- psychic cream
+- psychic screak
+- psychic stream
+- psychic screams
+- psychic scram
+- psychid scream
+- psychics scream
+
+## pyrotechnics
+
+- pyrotechnic
+
+## scatter
+
+- slatter
+- shatter
+- smatter
+- scattery
+- scattier
+- scatters
+- scanter
+- catter
+- spatter
+- scatted
+- swatter
+- scratter
+- scutter
+
+## shadow blade
+
+- shadow blad
+- shadow blades
+- shadow blaze
+- shadow blame
+- shadow clade
+- shadow glade
+- shadow blader
+- shadow bade
+- shadow slade
+- shadow blare
+- shadow lade
+- shadow blake
+- shadow blae
+- shadow bladed
+- shadow blate
+- shadow blady
+- shadow blase
+- shadows blade
+- shado blade
+- shadowy blade
+
+## shadow of moil
+
+- shadow of soil
+- shadow of moi
+- shadow of mobil
+- shadow of koil
+- shadow of mool
+- shadow of roil
+- shadow of poil
+- shadow of moils
+- shadow of moile
+- shadow of mail
+- shadow of toil
+- shadow of moyl
+- shadow of coil
+- shadow of moit
+- shadow of moio
+- shadow of mil
+- shadow of foil
+- shadow of moul
+- shadow of moir
+- shadow of moid
+- shadow of oil
+- shadow of noil
+- shadow of boil
+- shadow of moll
+- shadow of mol
+- shadow oe moil
+- shadow om moil
+- shadow ok moil
+- shadow iof moil
+- shadow cf moil
+- shadow eof moil
+- shadow o moil
+- shadow rf moil
+- shadow oh moil
+- shadow oof moil
+- shadow f moil
+- shadow ef moil
+- shadow sf moil
+- shadow ol moil
+- shadow oaf moil
+- shadow hf moil
+- shadow lof moil
+- shadow ofo moil
+- shadow ox moil
+- shadow ow moil
+- shadow ouf moil
+- shadow od moil
+- shadow mf moil
+- shadow if moil
+- shadow op moil
+- shadow os moil
+- shadow af moil
+- shadow on moil
+- shadow ff moil
+- shadow orf moil
+- shadow oy moil
+- shadow ot moil
+- shadow oz moil
+- shadow ob moil
+- shadow lf moil
+- shadow or moil
+- shadow off moil
+- shadow wf moil
+- shadow oft moil
+- shadow oc moil
+- shadow pf moil
+- shadow bf moil
+- shadow og moil
+- shadows of moil
+- shado of moil
+- shadowy of moil
+
+## shape water
+
+- shape watter
+- shape waiter
+- shape gater
+- shape waker
+- shape tater
+- shape waler
+- shape wafter
+- shape waters
+- shape awater
+- shape later
+- shape walter
+- shape eater
+- shape bater
+- shape waer
+- shape waver
+- shape wanter
+- shape hater
+- shape waxer
+- shape wather
+- shape waster
+- shape wader
+- shape mater
+- shape dater
+- shape wager
+- shape pater
+- shape cater
+- shape wafer
+- shape rater
+- shape watery
+- shape oater
+- shaper water
+- shade water
+- scape water
+- shaps water
+- shrape water
+- share water
+- snape water
+- shapy water
+- shaped water
+- shame water
+- shale water
+- slape water
+- shake water
+- swape water
+- shave water
+- shope water
+- chape water
+- shap water
+- shapes water
+- shapen water
+- shane water
+
+## sickening radiance
+
+- sickening radiancy
+- sickening radiances
+
+## skill empowerment
+
+- skill embowerment
+- spill empowerment
+- skilly empowerment
+- skil empowerment
+- kill empowerment
+- skull empowerment
+- skills empowerment
+- swill empowerment
+- shill empowerment
+- sill empowerment
+- still empowerment
+- skell empowerment
+- skirl empowerment
+- skillo empowerment
+
+## skywrite
+
+- skywriter
+- skywrites
+- skywrote
+
+## snare
+
+- slare
+- sware
+- snake
+- spare
+- stare
+- share
+- snary
+- snape
+- sare
+- snared
+- scare
+- snore
+- snarer
+- snark
+- nare
+- snares
+- snarl
+
+## snilloc's snowball swarm
+
+- snilloc's snowball swarms
+- snilloc's snowball swarmy
+- snilloc's snowball swart
+- snilloc's snowball sparm
+- snilloc's snowball sware
+- snilloc's snowball swarf
+- snilloc's snowball sward
+- snilloc's snowball swam
+- snilloc's snowball warm
+- snilloc's snowball aswarm
+- snilloc's snowball smarm
+- snilloc's snowfall swarm
+- snilloc's snowballs swarm
+- snilloc's stowball swarm
+- snilloc's snowbell swarm
+
+## soul cage
+
+- soul cager
+- soul cadge
+- soul cagn
+- soul gage
+- soul cane
+- soul cate
+- soul cake
+- soul fage
+- soul cape
+- soul age
+- soul page
+- soul ctge
+- soul vage
+- soul cagey
+- soul rage
+- soul mage
+- soul cave
+- soul case
+- soul sage
+- soul cages
+- soul came
+- soul cade
+- soul cag
+- soul wage
+- soul care
+- soul cace
+- soul caged
+- soul cafe
+- soul cagy
+- soil cage
+- sol cage
+- saul cage
+- aoul cage
+- soum cage
+- souk cage
+- souly cage
+- sool cage
+- foul cage
+- moul cage
+- joul cage
+- shul cage
+- soulz cage
+- souls cage
+- soup cage
+- coul cage
+- sou cage
+- sous cage
+- seoul cage
+- boul cage
+- sour cage
+- sowl cage
+- soud cage
+- soulx cage
+- youl cage
+
+## steel wind strike
+
+- steel wind strikes
+- steel wind streke
+- steel wind striae
+- steel wind strife
+- steel wind skrike
+- steel wind stride
+- steel wind stripe
+- steel wind strive
+- steel wind striken
+- steel wind shrike
+- steel wind trike
+- steel wind strake
+- steel wind striked
+- steel wind scrike
+- steel wind straike
+- steel wind striker
+- steel wind stroke
+- steel kind strike
+- steel windy strike
+- steel wine strike
+- steel winds strike
+- steel ind strike
+- steel rind strike
+- steel wird strike
+- steel pind strike
+- steel hind strike
+- steel wand strike
+- steel lind strike
+- steel tind strike
+- steel bind strike
+- steel wynd strike
+- steel sind strike
+- steel wined strike
+- steel wied strike
+- steel win strike
+- steel windz strike
+- steel wino strike
+- steel wink strike
+- steel mind strike
+- steel wend strike
+- steel winy strike
+- steel wild strike
+- steel find strike
+- steel wid strike
+- steel wing strike
+- steel wins strike
+- steel wint strike
+- steen wind strike
+- steely wind strike
+- speel wind strike
+- steek wind strike
+- steele wind strike
+- steal wind strike
+- skeel wind strike
+- streel wind strike
+- seel wind strike
+- steep wind strike
+- steer wind strike
+- sheel wind strike
+- steem wind strike
+- stell wind strike
+- teel wind strike
+- stevel wind strike
+- steels wind strike
+- steed wind strike
+
+## storm sphere
+
+- storm sphered
+- storm sphene
+- storm osphere
+- storm sphery
+- storm spheres
+- storm spere
+- stormy sphere
+- store sphere
+- story sphere
+- storms sphere
+- stor sphere
+- stork sphere
+
+## summon greater demon
+
+- summon greater demob
+- summon greater demos
+- summon greater lemon
+- summon greater demot
+- summon greater demons
+- summon greater daemon
+- summon greater damon
+- summon greater demo
+- summon greater desmon
+- summon greater devon
+- summon grater demon
+- summon greaser demon
+- summon treater demon
+- summon greaten demon
+- summon greeter demon
+- simmon greater demon
+- summons greater demon
+
+## summon lesser demons
+
+- summon lesser devons
+- summon lesser demos
+- summon lesser lemons
+- summon lesser demobs
+- summon lesser demon
+- summon lesser daemons
+- summon lessen demons
+- summon lessor demons
+- summon leaser demons
+- summon cesser demons
+- summon leeser demons
+- summon lessee demons
+- summon blesser demons
+- summon lesses demons
+- summon messer demons
+- summon losser demons
+- summon lester demons
+- simmon lesser demons
+- summons lesser demons
+
+## synaptic static
+
+- synaptic stadic
+- synaptic astatic
+- synaptic stratic
+- synaptic statice
+- synaptic statics
+- synactic static
+- asynaptic static
+- synaptid static
+- synoptic static
+
+## temple of the gods
+
+- temple of the goads
+- temple of the gads
+- temple of the mods
+- temple of the yods
+- temple of the ods
+- temple of the gode
+- temple of the gids
+- temple of the golds
+- temple of the goss
+- temple of the sods
+- temple of the goos
+- temple of the geds
+- temple of the nods
+- temple of the goes
+- temple of the gowds
+- temple of the gobs
+- temple of the goods
+- temple of the god
+- temple of the rods
+- temple of the dods
+- temple of the bods
+- temple of the gos
+- temple of the pods
+- temple of the goas
+- temple of the gds
+- temple of the goys
+- temple of the hods
+- temple of the cods
+- temple of the gois
+- temple of the tods
+- temple of them gods
+- temple of he gods
+- temple of tae gods
+- temple of toe gods
+- temple of th gods
+- temple of thew gods
+- temple of tie gods
+- temple of theb gods
+- temple of thae gods
+- temple of then gods
+- temple of thed gods
+- temple of she gods
+- temple of che gods
+- temple of tee gods
+- temple of tue gods
+- temple of tye gods
+- temple of tche gods
+- temple of tho gods
+- temple of they gods
+- temple of tha gods
+- temple of thea gods
+- temple of thy gods
+- temple of rhe gods
+- temple of te gods
+- temple of thee gods
+- temple of theo gods
+- temple oe the gods
+- temple om the gods
+- temple ok the gods
+- temple iof the gods
+- temple cf the gods
+- temple eof the gods
+- temple o the gods
+- temple rf the gods
+- temple oh the gods
+- temple oof the gods
+- temple f the gods
+- temple ef the gods
+- temple sf the gods
+- temple ol the gods
+- temple oaf the gods
+- temple hf the gods
+- temple lof the gods
+- temple ofo the gods
+- temple ox the gods
+- temple ow the gods
+- temple ouf the gods
+- temple od the gods
+- temple mf the gods
+- temple if the gods
+- temple op the gods
+- temple os the gods
+- temple af the gods
+- temple on the gods
+- temple ff the gods
+- temple orf the gods
+- temple oy the gods
+- temple ot the gods
+- temple oz the gods
+- temple ob the gods
+- temple lf the gods
+- temple or the gods
+- temple off the gods
+- temple wf the gods
+- temple oft the gods
+- temple oc the gods
+- temple pf the gods
+- temple bf the gods
+- temple og the gods
+- tempre of the gods
+- stemple of the gods
+- templet of the gods
+- temples of the gods
+- templed of the gods
+- kemple of the gods
+- tempe of the gods
+- semple of the gods
+
+## tenser's transformation
+
+- tenser's transformations
+- tenser's transforation
+
+## thunderclap
+
+- thunderclaps
+
+## thunder step
+
+- thunder skep
+- thunder seep
+- thunder stept
+- thunder stem
+- thunder stop
+- thunder strep
+- thunder sep
+- thunder sten
+- thunder swep
+- thunder stap
+- thunder stet
+- thunder ster
+- thunder stoep
+- thunder steg
+- thunder steep
+- thunder stey
+- thunder steps
+- thunder stew
+- thonder step
+- tunder step
+- thunders step
+- bhunder step
+- thundery step
+- hunder step
+- chunder step
+
+## tidal wave
+
+- tidal wive
+- tidal wabe
+- tidal wace
+- tidal eave
+- tidal gave
+- tidal wale
+- tidal tave
+- tidal pave
+- tidal wove
+- tidal ave
+- tidal wame
+- tidal wauve
+- tidal wavy
+- tidal rave
+- tidal nave
+- tidal save
+- tidal wyve
+- tidal weve
+- tidal waves
+- tidal warve
+- tidal waver
+- tidal wade
+- tidal cave
+- tidal waive
+- tidal waved
+- tidal wae
+- tidal awave
+- tidal dave
+- tidal wage
+- tidal wake
+- tidal have
+- tidal wase
+- tidal weave
+- tidal wavey
+- tidal wane
+- tidal ware
+- tidal lave
+- tical wave
+- didal wave
+- nidal wave
+- tindal wave
+
+## tiny servant
+
+- tiny servants
+- tin servant
+- tine servant
+- tivy servant
+- twiny servant
+- piny servant
+- tint servant
+- tinny servant
+- tind servant
+- tuny servant
+- tony servant
+- tins servant
+- tidy servant
+- tinty servant
+- miny servant
+- tina servant
+- tink servant
+- tinsy servant
+- ting servant
+- tino servant
+- winy servant
+- viny servant
+- liny servant
+- tinc servant
+
+## toll the dead
+
+- toll the deal
+- toll the dear
+- toll the dread
+- toll the deady
+- toll the dyad
+- toll the tead
+- toll the deas
+- toll the decd
+- toll the detd
+- toll the ead
+- toll the decad
+- toll the adead
+- toll the deaf
+- toll the dea
+- toll the lead
+- toll the bead
+- toll the deed
+- toll the head
+- toll the dad
+- toll the drad
+- toll the dedd
+- toll the mead
+- toll the deads
+- toll the read
+- toll the dean
+- toll the duad
+- toll them dead
+- toll he dead
+- toll tae dead
+- toll toe dead
+- toll th dead
+- toll thew dead
+- toll tie dead
+- toll theb dead
+- toll thae dead
+- toll then dead
+- toll thed dead
+- toll she dead
+- toll che dead
+- toll tee dead
+- toll tue dead
+- toll tye dead
+- toll tche dead
+- toll tho dead
+- toll they dead
+- toll tha dead
+- toll thea dead
+- toll thy dead
+- toll rhe dead
+- toll te dead
+- toll thee dead
+- toll theo dead
+- told the dead
+- roll the dead
+- loll the dead
+- tole the dead
+- foll the dead
+- tolly the dead
+- doll the dead
+- zoll the dead
+- tolyl the dead
+- tolu the dead
+- toil the dead
+- joll the dead
+- tol the dead
+- tolls the dead
+- poll the dead
+- tola the dead
+- noll the dead
+- boll the dead
+- tell the dead
+- goll the dead
+- tolt the dead
+- coll the dead
+- holl the dead
+- tool the dead
+- till the dead
+- troll the dead
+- tall the dead
+- moll the dead
+- atoll the dead
+
+## transmute rock
+
+- transmute bock
+- transmute trock
+- transmute rick
+- transmute jock
+- transmute arock
+- transmute lock
+- transmute ock
+- transmute rocs
+- transmute rocky
+- transmute mock
+- transmute brock
+- transmute nock
+- transmute rack
+- transmute yock
+- transmute hock
+- transmute sock
+- transmute cock
+- transmute dock
+- transmute crock
+- transmute roak
+- transmute reck
+- transmute pock
+- transmute ruck
+- transmute frock
+- transmute rocks
+- transmute rok
+- transmute tock
+- transmute rook
+- transmute roc
+- transmuted rock
+- transmutes rock
+- transmue rock
+- transmuter rock
+
+## vitriolic sphere
+
+- vitriolic sphered
+- vitriolic sphene
+- vitriolic osphere
+- vitriolic sphery
+- vitriolic spheres
+- vitriolic spere
+
+## wall of light
+
+- wall of night
+- wall of blight
+- wall of tight
+- wall of lighty
+- wall of wight
+- wall of dight
+- wall of flight
+- wall of eight
+- wall of sight
+- wall of right
+- wall of lights
+- wall of licht
+- wall of hight
+- wall of might
+- wall of pight
+- wall of slight
+- wall of fight
+- wall of alight
+- wall of bight
+- wall of plight
+- wall oe light
+- wall om light
+- wall ok light
+- wall iof light
+- wall cf light
+- wall eof light
+- wall o light
+- wall rf light
+- wall oh light
+- wall oof light
+- wall f light
+- wall ef light
+- wall sf light
+- wall ol light
+- wall oaf light
+- wall hf light
+- wall lof light
+- wall ofo light
+- wall ox light
+- wall ow light
+- wall ouf light
+- wall od light
+- wall mf light
+- wall if light
+- wall op light
+- wall os light
+- wall af light
+- wall on light
+- wall ff light
+- wall orf light
+- wall oy light
+- wall ot light
+- wall oz light
+- wall ob light
+- wall lf light
+- wall or light
+- wall off light
+- wall wf light
+- wall oft light
+- wall oc light
+- wall pf light
+- wall bf light
+- wall og light
+- rall of light
+- walt of light
+- fall of light
+- walk of light
+- wail of light
+- wale of light
+- mall of light
+- gall of light
+- warl of light
+- will of light
+- ball of light
+- waly of light
+- waul of light
+- wawl of light
+- walla of light
+- well of light
+- wally of light
+- walls of light
+- call of light
+- wull of light
+- vall of light
+- wali of light
+- hall of light
+- lall of light
+- all of light
+- sall of light
+- tall of light
+- pall of light
+
+## wall of sand
+
+- wall of stand
+- wall of saned
+- wall of hand
+- wall of dand
+- wall of sane
+- wall of wand
+- wall of sant
+- wall of synd
+- wall of send
+- wall of san
+- wall of sank
+- wall of sad
+- wall of sind
+- wall of satd
+- wall of fand
+- wall of land
+- wall of sandy
+- wall of pand
+- wall of said
+- wall of sands
+- wall of sond
+- wall of kand
+- wall of saad
+- wall of band
+- wall of sard
+- wall of mand
+- wall of rand
+- wall of cand
+- wall of and
+- wall of sans
+- wall of sang
+- wall oe sand
+- wall om sand
+- wall ok sand
+- wall iof sand
+- wall cf sand
+- wall eof sand
+- wall o sand
+- wall rf sand
+- wall oh sand
+- wall oof sand
+- wall f sand
+- wall ef sand
+- wall sf sand
+- wall ol sand
+- wall oaf sand
+- wall hf sand
+- wall lof sand
+- wall ofo sand
+- wall ox sand
+- wall ow sand
+- wall ouf sand
+- wall od sand
+- wall mf sand
+- wall if sand
+- wall op sand
+- wall os sand
+- wall af sand
+- wall on sand
+- wall ff sand
+- wall orf sand
+- wall oy sand
+- wall ot sand
+- wall oz sand
+- wall ob sand
+- wall lf sand
+- wall or sand
+- wall off sand
+- wall wf sand
+- wall oft sand
+- wall oc sand
+- wall pf sand
+- wall bf sand
+- wall og sand
+- rall of sand
+- walt of sand
+- fall of sand
+- walk of sand
+- wail of sand
+- wale of sand
+- mall of sand
+- gall of sand
+- warl of sand
+- will of sand
+- ball of sand
+- waly of sand
+- waul of sand
+- wawl of sand
+- walla of sand
+- well of sand
+- wally of sand
+- walls of sand
+- call of sand
+- wull of sand
+- vall of sand
+- wali of sand
+- hall of sand
+- lall of sand
+- all of sand
+- sall of sand
+- tall of sand
+- pall of sand
+
+## wall of water
+
+- wall of watter
+- wall of waiter
+- wall of gater
+- wall of waker
+- wall of tater
+- wall of waler
+- wall of wafter
+- wall of waters
+- wall of awater
+- wall of later
+- wall of walter
+- wall of eater
+- wall of bater
+- wall of waer
+- wall of waver
+- wall of wanter
+- wall of hater
+- wall of waxer
+- wall of wather
+- wall of waster
+- wall of wader
+- wall of mater
+- wall of dater
+- wall of wager
+- wall of pater
+- wall of cater
+- wall of wafer
+- wall of rater
+- wall of watery
+- wall of oater
+- wall oe water
+- wall om water
+- wall ok water
+- wall iof water
+- wall cf water
+- wall eof water
+- wall o water
+- wall rf water
+- wall oh water
+- wall oof water
+- wall f water
+- wall ef water
+- wall sf water
+- wall ol water
+- wall oaf water
+- wall hf water
+- wall lof water
+- wall ofo water
+- wall ox water
+- wall ow water
+- wall ouf water
+- wall od water
+- wall mf water
+- wall if water
+- wall op water
+- wall os water
+- wall af water
+- wall on water
+- wall ff water
+- wall orf water
+- wall oy water
+- wall ot water
+- wall oz water
+- wall ob water
+- wall lf water
+- wall or water
+- wall off water
+- wall wf water
+- wall oft water
+- wall oc water
+- wall pf water
+- wall bf water
+- wall og water
+- rall of water
+- walt of water
+- fall of water
+- walk of water
+- wail of water
+- wale of water
+- mall of water
+- gall of water
+- warl of water
+- will of water
+- ball of water
+- waly of water
+- waul of water
+- wawl of water
+- walla of water
+- well of water
+- wally of water
+- walls of water
+- call of water
+- wull of water
+- vall of water
+- wali of water
+- hall of water
+- lall of water
+- all of water
+- sall of water
+- tall of water
+- pall of water
+
+## warding wind
+
+- warding kind
+- warding windy
+- warding wine
+- warding winds
+- warding ind
+- warding rind
+- warding wird
+- warding pind
+- warding hind
+- warding wand
+- warding lind
+- warding tind
+- warding bind
+- warding wynd
+- warding sind
+- warding wined
+- warding wied
+- warding win
+- warding windz
+- warding wino
+- warding wink
+- warding mind
+- warding wend
+- warding winy
+- warding wild
+- warding find
+- warding wid
+- warding wing
+- warding wins
+- warding wint
+- warling wind
+- warping wind
+- yarding wind
+- wadding wind
+- waring wind
+- warning wind
+- wading wind
+- barding wind
+- swarding wind
+- warking wind
+- carding wind
+- warring wind
+- harding wind
+- awarding wind
+- larding wind
+- wording wind
+- farding wind
+- warming wind
+
+## watery sphere
+
+- watery sphered
+- watery sphene
+- watery osphere
+- watery sphery
+- watery spheres
+- watery spere
+- wafery sphere
+- wavery sphere
+- waters sphere
+- wastery sphere
+- water sphere
+- eatery sphere
+- catery sphere
+
+## whirlwind
+
+- whirlwindy
+- whirlwinds
+
+## word of radiance
+
+- word of radiancy
+- word of radiances
+- word oe radiance
+- word om radiance
+- word ok radiance
+- word iof radiance
+- word cf radiance
+- word eof radiance
+- word o radiance
+- word rf radiance
+- word oh radiance
+- word oof radiance
+- word f radiance
+- word ef radiance
+- word sf radiance
+- word ol radiance
+- word oaf radiance
+- word hf radiance
+- word lof radiance
+- word ofo radiance
+- word ox radiance
+- word ow radiance
+- word ouf radiance
+- word od radiance
+- word mf radiance
+- word if radiance
+- word op radiance
+- word os radiance
+- word af radiance
+- word on radiance
+- word ff radiance
+- word orf radiance
+- word oy radiance
+- word ot radiance
+- word oz radiance
+- word ob radiance
+- word lf radiance
+- word or radiance
+- word off radiance
+- word wf radiance
+- word oft radiance
+- word oc radiance
+- word pf radiance
+- word bf radiance
+- word og radiance
+- ord of radiance
+- worm of radiance
+- wod of radiance
+- sord of radiance
+- wird of radiance
+- wort of radiance
+- work of radiance
+- wood of radiance
+- lord of radiance
+- mord of radiance
+- cord of radiance
+- bord of radiance
+- oord of radiance
+- ford of radiance
+- sword of radiance
+- woad of radiance
+- wold of radiance
+- worn of radiance
+- wore of radiance
+- wordy of radiance
+- world of radiance
+- ward of radiance
+- words of radiance
+
+## wrath of nature
+
+- wrath of natured
+- wrath of natures
+- wrath of naturae
+- wrath of natura
+- wrath of naturel
+- wrath of mature
+- wrath oe nature
+- wrath om nature
+- wrath ok nature
+- wrath iof nature
+- wrath cf nature
+- wrath eof nature
+- wrath o nature
+- wrath rf nature
+- wrath oh nature
+- wrath oof nature
+- wrath f nature
+- wrath ef nature
+- wrath sf nature
+- wrath ol nature
+- wrath oaf nature
+- wrath hf nature
+- wrath lof nature
+- wrath ofo nature
+- wrath ox nature
+- wrath ow nature
+- wrath ouf nature
+- wrath od nature
+- wrath mf nature
+- wrath if nature
+- wrath op nature
+- wrath os nature
+- wrath af nature
+- wrath on nature
+- wrath ff nature
+- wrath orf nature
+- wrath oy nature
+- wrath ot nature
+- wrath oz nature
+- wrath ob nature
+- wrath lf nature
+- wrath or nature
+- wrath off nature
+- wrath wf nature
+- wrath oft nature
+- wrath oc nature
+- wrath pf nature
+- wrath bf nature
+- wrath og nature
+- wreath of nature
+- wraths of nature
+- wath of nature
+- wrathy of nature
+- wroth of nature
+- wraith of nature
+- writh of nature
+- rath of nature
+
+## zephyr strike
+
+- zephyr strikes
+- zephyr streke
+- zephyr striae
+- zephyr strife
+- zephyr skrike
+- zephyr stride
+- zephyr stripe
+- zephyr strive
+- zephyr striken
+- zephyr shrike
+- zephyr trike
+- zephyr strake
+- zephyr striked
+- zephyr scrike
+- zephyr straike
+- zephyr striker
+- zephyr stroke
+- zephyry strike
+- zephyrs strike
+

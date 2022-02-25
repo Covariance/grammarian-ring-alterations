@@ -1,0 +1,62 @@
+Aid
+Augury
+Beacon of Hope
+Bless
+Blur
+Burning Hands
+Charm Person
+Command
+Comprehend Languages
+Cure Wounds
+Dancing Lights
+Darkness
+Detect Magic
+Dispel Magic
+Fear
+Feather Fall
+Fireball
+Flaming Sphere
+Fly
+Guidance
+Guiding Bolt
+Healing Word
+Hold Person
+Hunter's Mark
+Identify
+Inflict Wounds
+Invisibility
+Lesser Restoration
+Light
+Lightning Bolt
+Longstrider
+Mage Armor
+Mage Hand
+Magic Missile
+Magic Weapon
+Mass Healing Word
+Misty Step
+Prayer of Healing
+Prestidigitation
+Protection from Energy
+Protection from Evil and Good
+Ray of Frost
+Resistance
+Revivify
+Sacred Flame
+Sanctuary
+Sending
+Shield
+Shield of Faith
+Shocking Grasp
+Silence
+Sleep
+Speak with Dead
+Spirit Guardians
+Spiritual Weapon
+Suggestion
+Thaumaturgy
+Thunderwave
+Vicious Mockery
+Warding Bond
+Web
+Zone of Truth
