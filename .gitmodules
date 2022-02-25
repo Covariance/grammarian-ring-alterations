@@ -1,0 +1,6 @@
+[submodule "DnDAppFiles"]
+	path = DnDAppFiles
+	url = https://github.com/Cphrampus/DnDAppFiles
+[submodule "english-words"]
+	path = english-words
+	url = https://github.com/dwyl/english-words
